@@ -1,3 +1,6 @@
+![IMG_20251105_235801](https://github.com/user-attachments/assets/f8533f2e-3dbf-4440-86fd-96d5be8e9d76)
+![IMG_20251109_161114](https://github.com/user-attachments/assets/f537fe48-adfb-4372-be09-ddf8b09ce7f4)
+![IMG_20251109_161206](https://github.com/user-attachments/assets/f86d139d-2d38-40d2-88e3-d185dae1074d)
 # User manual
 
 [[toc]]
